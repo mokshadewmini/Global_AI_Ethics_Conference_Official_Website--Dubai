@@ -1,0 +1,2 @@
+# Global_AI_Ethics_Conference_Official_Website (Dubai)
+ Experienced Web Developer with a passion for ethical AI and a commitment to advancing the conversation around global AI ethics. Currently serving as the web developer for the Global AI Ethics Conference in Dubai, where I am playing a pivotal role in developing and maintaining the conference's website. I am dedicated to leveraging technology to promote ethical practices and foster meaningful discussions within the AI community. Join me in shaping the future of AI ethics at the forefront of this groundbreaking conference.
